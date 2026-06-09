@@ -1,4 +1,4 @@
-# 
+# Personalizado degen coin sniper bot plugins para Mac OS | VIP degen coin sniper bot plugins para PC Windows. Com suporte multi-chain e detecção de tendências — otimizado para máximo desempeño en cada plataforma.
 
 
 
